@@ -1,1 +1,1 @@
-Estou amando! O módulo 1 foi perfeito, já o módulo 2 está mais complicado, ms estou conseguindo fazer sozinha :D
+Estou amando! O módulo 1 foi perfeito, já o módulo 2 está mais complicado, mas estou conseguindo fazer sozinha :D
